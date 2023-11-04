@@ -1,0 +1,1 @@
+# Przelicznik-wymian-sprzetu-w-aucie
